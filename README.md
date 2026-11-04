@@ -43,7 +43,7 @@ I'm a Computer Science graduate passionate about software development, problem-s
 
 ### 🤝 Connect With Me
 
-- LinkedIn: https://www.linkedin.com/
+- LinkedIn: www.linkedin.com/in/amena-iproliya-134935398
 
 ---
 
